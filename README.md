@@ -1,2 +1,1 @@
-# among us mod
-【名前】
+# among us mod　【名前】
